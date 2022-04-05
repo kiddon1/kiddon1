@@ -1,1 +1,1 @@
-Hi... My discord 𝕂𝕚𝕕𝕕𝕠#7194
+Hi... My discord Kiddo#7194
